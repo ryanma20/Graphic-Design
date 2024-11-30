@@ -8,8 +8,8 @@ I have been involved in amateur photography for eight years and have been creati
 - [Ryan Ma](https://www.flickr.com/photos/ryanma1997/)<br>
 
 ## Taiwan Mountain Postcard | 屾山林內<br>
-- My first crowdfunding project was to publish my photography works as postcards：<br>
-[屾山林內](https://www.zeczec.com/projects/mtpostcard)
+My first crowdfunding project was to publish my photography works as postcards：<br>
+- [屾山林內](https://www.zeczec.com/projects/mtpostcard)
 
 ## Postmark Design | 30th anniversary of Shei-Pa National Park(雪霸)<br>
 To celebrate the 30th anniversary of Taiwan's Shei-Pa National Park,<br>
